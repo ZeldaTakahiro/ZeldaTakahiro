@@ -5,7 +5,7 @@
 
 - Right Now, I am working on a game called **Guy Quest.**
 
-- At the moment, I am learning **Java, Python and The Unreal Engine.**
+- At the moment, I am learning **Unreal Engine.**
 
 - If you want **Shoot me a message asking how my day has been.**
 
