@@ -9,7 +9,7 @@
 
 - If you want **Shoot me a message asking how my day has been.**
 
-- You can get in touch at **ZeldaTK#2005 on Discord**
+- You can get in touch at **ZeldaTK#7790 on Discord**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
